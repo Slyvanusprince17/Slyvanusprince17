@@ -10,13 +10,13 @@ Looking for a Developer? Let's schedule a Zoom chat!
 
 You can reach me via the following channels:
 
-LinkedIn/
-Website
-Twitter
-Read My Articles On Medium
-Subscribe to my YouTube Channel
-Email: slyvanusifeanyiprincewill@gmail.com
-WhatsApp
+LinkedIn/www.linkedin.com/in/sylvanus-princewill-8b6515242<br>
+Website<br>
+Twitter<br>
+Read My Articles On Medium<br>
+Subscribe to my YouTube Channel<br>
+Email: slyvanusifeanyiprincewill@gmail.com<br>
+WhatsApp<br>
 
 
 
